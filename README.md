@@ -30,3 +30,7 @@ As stated before I have a huge family. They are all so important to me and they 
 In conclusion the most important things to me are my family, friends, and intersts. in order to learn more about check out website!
 
 [My website](https://calebg4205.github.io/)
+
+#### Other places to find me
+- Email: Calebg23@nycstudents.net
+- School: High school of telecommunications and technology
