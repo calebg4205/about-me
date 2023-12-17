@@ -33,4 +33,4 @@ In conclusion the most important things to me are my family, friends, and inters
 
 #### Other places to find me
 - Email: Calebg23@nycstudents.net
-- School: High school of telecommunications and technology
+- School: [High school of telecommunications and technology](https://www.hstat.org/)
