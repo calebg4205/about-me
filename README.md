@@ -8,9 +8,9 @@ In order to know to me you have to know my friends. My friends are _Kostela_, _A
 --- ---
 ### My favriot star wars movies
 Star wars is the **best** franchise to ever exist. My favriot movies in order are,
-1. The empire strikes back
-2. The return of the Jedi
-3. The revenge of the sith
+1. _The empire strikes back_
+2. _The return of the Jedi_
+3. _The revenge of the sith_
 4. A new hope
 5. Attack of the clones
 6. The phamton menace
